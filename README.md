@@ -23,4 +23,4 @@ Links
 Weiteres:
 -----------
 
-* Rückfragen an die Dozenten: we2 ♞ätt♞ zweitag.de
+* Rückfragen an die Dozenten: we2@weitag.de
